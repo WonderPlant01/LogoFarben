@@ -1,1 +1,1 @@
-<img width="1260" height="616" alt="Image" src="https://github.com/user-attachments/assets/eafd7fe4-5b72-4502-99e7-c5fede414513" />
+<img width="1260" height="616" alt="LogoANIMATION (6)" src="https://github.com/user-attachments/assets/b706bda8-e58d-424f-a19c-fd8226c726a2" />

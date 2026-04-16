@@ -1,1 +1,1 @@
-<img width="1260" height="616" alt="Copy of LogoANIMATION" src="https://github.com/user-attachments/assets/4ab54e72-9ba9-420a-b833-01abdc154e60" />
+<img width="1314" height="496" alt="animationen design abgabe (3)" src="https://github.com/user-attachments/assets/58e7b3be-9674-448b-b3e9-4be4411d5fc5" />
